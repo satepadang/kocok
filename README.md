@@ -1,0 +1,2 @@
+# kocok
+para manusia kocok
